@@ -45,7 +45,7 @@
 ### 📫 Connect with Me
 
 - **Name:** Gideon Kahindi
-- [LinkedIn](https://www.linkedin.com/in/gideon-kahindi)
+- [LinkedIn](https://www.linkedin.com/in/gideon-kahindi-296294205/)
 
 ---
 
